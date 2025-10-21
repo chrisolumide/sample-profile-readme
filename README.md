@@ -1,4 +1,4 @@
-## 👏 Hi, I'm _YOUR_NAME_HERE_!
+## 👏 Hi, I'm Chris Olumide!
 ##  About Me
 _Share some information about yourself, including your class, major, jobs, and extra-curriculars._
 ## ⚒️ Skills
